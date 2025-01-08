@@ -1,5 +1,5 @@
 # UP Ration Card List 2025 PDF Download New Link
-UP Ration Card List 2025 Pdf Download is the list in which the names of eligible families are recorded, who have the right to get food items at subsidized rates from government ration shops. This list is issued by the Uttar Pradesh Food and Supplies Department. To see the ration card eligibility list, first of all you go to the official portal of the Food and Supplies Department of your state. Suppose I am a resident of Uttar Pradesh state, and I want to see the ration card list in my state,
+**UP Ration Card List 2025 Pdf Download** is the list in which the names of eligible families are recorded, who have the right to get food items at subsidized rates from government ration shops. This list is issued by the Uttar Pradesh Food and Supplies Department. To see the ration card eligibility list, first of all you go to the official portal of the Food and Supplies Department of your state. Suppose I am a resident of Uttar Pradesh state, and I want to see the ration card list in my state,
 
 # [Click Here](https://mera-ration.in/up-ration-card-e-kyc/)
 
